@@ -34,3 +34,16 @@ Citations:
 [9] https://en.wikipedia.org/wiki/Strategy_and_tactics_of_guerrilla_warfare
 
 
+And related report made by AI in this field 😔:
+
+![enter image description here](https://i.sstatic.net/AFJmRw8J.jpg)
+
+https://drive.google.com/drive/u/0/mobile/folders/18hsLZwg7aIQuiVgzqVvFdn8ys8Wg5lZ4
+
+# And the related reports like podcast report is available at below 👇:
+
+![enter image description here](https://i.sstatic.net/E4efA0oZ.jpg)
+
+#Or the meeting content report is available at below 👇:
+
+![enter image description here](https://i.sstatic.net/Mbv2DipB.jpg)
